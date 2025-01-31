@@ -12,7 +12,7 @@ I’m graduate from Industrial Engineering at **Universitas Islam Indonesia**. A
 - **Artificial Intelligence Applications** - Agriculture, Healthcare, and Environmental Sciences
 - **Data Science & Analytics** - Modeling, insights, and business intelligence
 
-I'm always open to collaboration! Reach out at: `albara.husain@students.uii.ac.id`
+I'm always open to collaboration! Reach out at: `Bimakasaa@gmail.com`
 
 
 ## 💼 Projects
